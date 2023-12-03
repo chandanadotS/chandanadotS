@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chandanadotS
+- 👋 Hi, I’m Chandana S
 - 👀 I’m interested in product management and cooking 
 - 🌱 I’m currently learning AI and Kathak in my free time.
 - 📫 How to reach me chandana04s98@gmail.com
